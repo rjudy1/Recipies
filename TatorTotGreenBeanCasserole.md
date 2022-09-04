@@ -9,7 +9,7 @@
 
 ##### Steps
 1. Cook sausage on stove. Salt to desired
-2. Cook green beans in microwave
+2. Cook green beans in microwave or on stove 
 3. Spread sausage in bottom of pan and green beans over top.
 4. Combine soup and milk and pour over the first two layers. Spread tator tots on top.
-5. Bake at 350 degrees for 1.5 hours in glass
+5. Bake at 350 degrees for 50 minutes in glass
