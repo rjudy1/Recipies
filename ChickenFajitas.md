@@ -9,7 +9,7 @@
 - 1 tablespoon cornstarch
 - 1/4 cup water
 - 4 tablespoons extra-virgin olive oil, divided
-- 2 whole skinless, boneless chicken breasts (about 2 pounds), cut into 1/2-inch strips
+- 2 whole skinless, boneless chicken breasts (about 2 pounds), cut into 1/2-inch strips (tenderloin works well)
 - 1 green bell pepper, cored, seeded, and cut into thin strips (alternatively, bag of sliced peppers and onions from kroger)
 - 1 medium onion, thinly sliced
 - 2 tablespoons fresh lime juice, plus lime wedges for serving
@@ -18,6 +18,7 @@
 - Shredded cheddar cheese, for serving
 - Salsa, for serving
 - Sour cream, for serving
+- can alternatively get frozen bag of sliced peppers and onions from kroger
 
 ##### Steps
 1. In a resealable plastic bag, combine chile powder with salt, cumin, onion powder, garlic powder, cornstarch, water, and 2 tablespoons of the oil. Add chicken, bell pepper, and onion.
