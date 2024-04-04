@@ -12,4 +12,4 @@
 2. Refridgerate 2 hours.
 3. Roll into balls and store in fridge.
 
-(credit to https://www.foodandwine.com/recipes/easy-chicken-fajitas)
+(credit to [https://www.foodandwine.com/recipes/easy-chicken-fajitas](https://www.gimmesomeoven.com/no-bake-energy-bites/))
