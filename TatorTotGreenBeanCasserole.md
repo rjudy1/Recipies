@@ -5,7 +5,7 @@
 - 20 oz green beans
 - 1 can cream of mushroom soup
 - 1/4 cup milk
-- Tator tots
+- 1 bag of frozen tator tots
 - salt and pepper
 
 ##### Steps
